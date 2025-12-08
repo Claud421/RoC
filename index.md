@@ -2,7 +2,7 @@
 
 **If you want to watch detailed product operation videos, you can click the link below:**
 
-![画板 1@3x-100](C:\Users\asus\xwechat_files\wxid_6mkzbhprlcm512_8f8e\msg\file\2025-12\G5 PNG\G5 PNG\3x\画板 1@3x-100.jpg)
+![17 3x-100]((images/[17 3x-100.jpg))
 
 ![画板 2@3x-100](C:\Users\asus\xwechat_files\wxid_6mkzbhprlcm512_8f8e\msg\file\2025-12\G5 PNG\G5 PNG\3x\画板 2@3x-100.jpg)
 
